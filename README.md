@@ -8,7 +8,8 @@
 <div class="scrolling-text-container">
   <div class="scrolling-text">
     
-  </div>
+  </div>I'm a multifandom but you'll see me at forsaken mostly.
+ 
 </div>
 
   
