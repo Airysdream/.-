@@ -11,7 +11,5 @@
   </div>
 </div>
 
-    
- I'm a multifandom but you'll see me at forsaken mostly.
- 
+  
  I dont rlly talk that much, im kinda introverted heh.
