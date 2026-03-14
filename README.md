@@ -5,8 +5,7 @@
   ![image](https://files.catbox.moe/gukaiq.png)
 <p align="center"> Hi im Airys, Zen, or Ash. 
 
-<div class="I'm a multifandom but you'll see me at forsaken mostly.
- ">
+<div class="scrolling-text-container">
     
  I'm a multifandom but you'll see me at forsaken mostly.
  
